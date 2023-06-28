@@ -1,2 +1,1 @@
-Josmar Diaz
-Maria Paula Sánchez
+Josmar Diaz - Maria Paula Sanchez - Sebastian Paruma
