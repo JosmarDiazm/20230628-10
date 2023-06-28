@@ -1,1 +1,1 @@
-Josmar Diaz - Maria Paula Sanchez C. - Sebastian Paruma - Alejandro Tabraj-Joise Penagos
+** Maria Paula Sanchez Cortes :smiley: **
