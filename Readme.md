@@ -1,1 +1,1 @@
-Josmar Diaz - Maria Paula Sanchez - Sebastian Paruma - Alejandro Tabraj
+Josmar Diaz - Maria Paula Sanchez - Sebastian Paruma - Alejandro Tabraj-Joise Penagos
