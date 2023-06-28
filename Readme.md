@@ -1,1 +1,3 @@
-Josmar Diaz - Maria Paula Sanchez - Sebastian Paruma - Alejandro Tabraj-Joise Penagos
+# Sebastian Paruma :cold_face:
+
+Josmar Diaz - Maria Paula Sanchez - Sebastian Paruma - Alejandro Tabraj - Joise Penagos
